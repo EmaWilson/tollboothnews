@@ -1,0 +1,20 @@
+# Header
+logo_text: Toll Booth News
+menu:
+  Home: /
+  Archives: /archives/
+  Categories: /categories/
+  About: /about/
+
+# Content
+excerpt_link: Read More
+toc: true
+fancybox: true
+
+#comments
+disqus_shortname: your-shortname
+
+# Miscellaneous
+google_analytics:
+favicon: /images/favicon.png
+
