@@ -12,6 +12,8 @@ Perfect your cosmetic technique with our all new Light Marble brush arranged - a
 
 Whether you're a pro MUA or a starter, you'll love the quality of these beautiful brushes - featuring a stylish design fit for a good fashionista and an angled brush holder to give these tools the attention they deserve. Effortlessly develop an array of luxury looks for every celebration with this phenomenal brush placed. In the end, you'll be swept apart by the results! 
 
+<!-- more -->
+
 Get swept apart by the various tools of the trade with Light Marble. Not merely are these deal with and eye brushes very stylish with silver ferrules, marbleized handles and plush two-toned man made bristles, they'll as well keep you searching your best and feeling royalesque. Go spots and rock your top looks!
 
 A signature feature of the White colored Marble brushes will be the feathery soft man made bristles specially suitable for effortless precision. Create a defining contour, banish blemishes and enhance your eye and cheekbones. From glam to everyday chic, transform your high end looks with this outstanding brush set.

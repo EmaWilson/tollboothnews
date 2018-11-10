@@ -34,7 +34,7 @@ Using extremely winter, CoolSculpting eliminates stubborn body fat from the tumm
 
 It's completely non-invasive, and destroyed fat cells are naturally removed from the body over a period of 12 weeks.
 
-___4. Thermage__
+__4. Thermage__
 
 With age, patients often encounter sagging and thinning of skin area on the upper arms, thighs, tummy, and backs of knees. 
 
