@@ -14,7 +14,7 @@ Do you have any idea what makes up your colorful and delicate cosmetic? Antioxid
 
 Before we ask for good performance, the first thing we have to guarantee is whether it is no harm to our skins. The makeup brand must source their ingredients from the professional company who has been compliant with GMP standards, a system for ensuring that products are consistently produced and controlled according to quality standards. Also, the heavy metal content, microbial and physical parameters of the pearlescent must be in full compliance with current regulations. With these basic requirements, the possibility of allergic can be greatly reduced and we can expect for gorgeous makeup.
 
-!<--more-->
+!<-- more -->
 
 ![](/images/10.jpg)
 
